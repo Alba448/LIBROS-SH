@@ -2,8 +2,10 @@
 Recomendadme dos buenos libros 😊
 
 
-Harry Potter y el cáliz de fuego- JK Rowling </br>
-El príncipe de la niebla- Carlos Ruiz Zafón
+- Harry Potter y el cáliz de fuego- JK Rowling
+- El príncipe de la niebla- Carlos Ruiz Zafón
+- La Casa de Bernarda Alba- Federico García Lorca
+
 
 
 
